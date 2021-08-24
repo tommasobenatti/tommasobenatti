@@ -10,4 +10,5 @@
 - ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
 
 pippo coca come l'avvofatto
+
 disclamer: questa bio è totalmente ironica, non prendetela sul personale, in caso lei che sta leggendo questo messaggio è un mio professore le chiedo scusa
