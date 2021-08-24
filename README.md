@@ -7,4 +7,4 @@
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
 - 😄 Pronouns: he/lavatrice
 - 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
-- ⚡ Fun fact: Ce l'ho corto
+- ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
