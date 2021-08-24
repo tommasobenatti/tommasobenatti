@@ -8,3 +8,5 @@
 - 😄 Pronouns: he/lavatrice
 - 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
 - ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
+
+pippo coca come l'avvofatto
