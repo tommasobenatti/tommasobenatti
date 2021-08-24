@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on: @minecraftexperienceserv
 - 🌱 I’m currently learning: Java
-- 💬 Ask me about: Quanto sia lungo il mio cazzo
+- 💬 Ask me about: Dove nascondo le mie bambine
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
 - 😄 Pronouns: he/lavatrice
 - 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
