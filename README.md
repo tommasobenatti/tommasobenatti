@@ -6,4 +6,5 @@
 - 💬 Ask me about: Quanto sia lungo il mio cazzo
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
 - 😄 Pronouns: he/lavatrice
+- 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
 - ⚡ Fun fact: Ce l'ho corto
