@@ -8,7 +8,11 @@
 - 😄 Pronouns: he/lavatrice
 - 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
 - ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
-
+- 🧰 "My" stuff: 
+      https://paste.tommasobenatti.dev
+      https://url.tommasobenatti.dev
+      
+      
 pippo coca come l'avvofatto
 
 disclamer: questa bio è totalmente ironica, non prendetela sul personale, in caso lei che sta leggendo questo messaggio è un mio professore le chiedo scusa
