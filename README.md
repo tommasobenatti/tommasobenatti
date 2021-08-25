@@ -9,8 +9,7 @@
 - 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
 - ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
 - 🧰 "My" stuff: 
-      https://paste.tommasobenatti.dev
-      https://url.tommasobenatti.dev
+      https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
       
       
 pippo coca come l'avvofatto
