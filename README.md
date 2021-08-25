@@ -10,7 +10,7 @@
 - ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
-      
+      (everything is selfhosted since I'm a pro sysadmin)
       
 pippo coca come l'avvofatto
 
