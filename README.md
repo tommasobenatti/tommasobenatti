@@ -3,15 +3,9 @@
 
 - 🔭 I’m currently working on: ExperienceCore (private)
 - 🌱 I’m currently learning: Java
-- 💬 Ask me about: Dove nascondo le mie bambine
+- 💬 Ask me about:
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
-- 😄 Pronouns: he/lavatrice
-- 🧱 My sex: non binary / demiboy / demigirl / tostapane / they, them / forchetta /diocane / procoddio
-- ⚡ Fun fact: Mia madre mi bullizza perché ho il cazzo sotto la media nazionale 😢
+- 😄 Pronouns: he/him
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
       (everything is selfhosted since I'm a pro sysadmin)
-      
-pippo coca come l'avvofatto
-
-disclamer: questa bio è totalmente ironica, non prendetela sul personale, in caso lei che sta leggendo questo messaggio è un mio professore le chiedo scusa
