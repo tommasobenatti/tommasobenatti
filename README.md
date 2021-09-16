@@ -3,9 +3,9 @@
 
 - 🔭 I’m currently working on: ExperienceCore (private)
 - 🌱 I’m currently learning: Java
-- 💬 Ask me about:
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
 - 😄 Pronouns: he/him
+- 🐧  Debian Lover
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
       (everything is selfhosted since I'm a pro sysadmin)
