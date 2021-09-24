@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on: ExperienceCore (private)
 - 🌱 I’m currently learning: Java
-- 📫 How to reach me: tbenatti-clone#1504 | me@tommasobenatti.dev
+- 📫 How to reach me: tommaso.benatti#1504 | me@tommasobenatti.dev
 - 🐧  Debian Lover
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
