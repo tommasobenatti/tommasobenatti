@@ -2,7 +2,7 @@
 
 
 - 🔭 I'm currently working at Minecraft Experience
-- 🌱 I’m currently learning: C / Java
+- 🌱 I’m currently learning: C & Java
 - 📫 How to reach me: tommaso.benatti#1504 | me@tommasobenatti.dev
 - 🐧  Debian Lover
 - 🧰 "My" stuff: 
