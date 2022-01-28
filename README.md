@@ -6,5 +6,5 @@
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
 - 🍎  MacOS user
 - 🧰 "My" stuff: 
-      https://paste.tommasobenatti.dev | https://url.tommasobenatti.dev
+      https://paste.tommasobenatti.dev
       (everything is selfhosted since I'm a pro sysadmin)
