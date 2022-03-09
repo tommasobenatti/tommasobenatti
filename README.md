@@ -4,7 +4,6 @@
 - 🔭 I'm currently working at Minecraft Experience
 - 🌱 I’m currently learning: C & Java
 - 📫 How to reach me: tommaso.benatti#0001 | me@tommasobenatti.dev
-- 🍎  MacOS user
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev
       (everything is selfhosted since I'm a pro sysadmin)
