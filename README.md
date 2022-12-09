@@ -7,3 +7,5 @@
 - 🧰 "My" stuff: 
       https://paste.tommasobenatti.dev
       (everything is selfhosted since I'm a pro sysadmin)
+
+ - I LIKE DICK SOOOO MUCH (see repositories)
