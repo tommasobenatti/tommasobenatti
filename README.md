@@ -5,13 +5,13 @@
 
 - 🔭 I’m currently working on [McExp.it](https://mcexp.it)
 
-- 👨‍💻 All of my projects are available at [tommasobenatti.dev](tommasobenatti.dev)
+- 👨‍💻 All of my projects are available at [tommasobenatti.dev](https://tommasobenatti.dev)
 
 - 💬 Ask me about **networking, docker, linux, webservers**
 
 - 📫 How to reach me **me@tommasobenatti.dev**
 
-- 📄 Know about my experiences [tommasobenatti.dev/resume](tommasobenatti.dev/resume)
+- 📄 Know about my experiences [tommasobenatti.dev/resume](https://tommasobenatti.dev/resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
