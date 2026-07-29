@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tommasobenatti&label=Profile%20views&color=0e75b6&style=flat" alt="tommasobenatti" /> </p>
 
-- 🔭 I’m currently working on [McExp.it](https://horizoncity.it)
+- 🔭 I’m currently working on [HorizonCity](https://horizoncity.it)
 
 - 👨‍💻 All of my projects are available at [tommasobenatti.dev](https://tommasobenatti.dev)
 
@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **me@tommasobenatti.dev**
 
-- 📄 Know about my experiences [tommasobenatti.dev/resume](https://tommasobenatti.dev/resume)
+- 📄 Know about my experiences [tommasobenatti.dev/#esperienza](https://tommasobenatti.dev/#esperienza)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
