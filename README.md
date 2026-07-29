@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tommasobenatti&label=Profile%20views&color=0e75b6&style=flat" alt="tommasobenatti" /> </p>
 
-- 🔭 I’m currently working on [McExp.it](https://mcexp.it)
+- 🔭 I’m currently working on [McExp.it](https://horizoncity.it)
 
 - 👨‍💻 All of my projects are available at [tommasobenatti.dev](https://tommasobenatti.dev)
 
